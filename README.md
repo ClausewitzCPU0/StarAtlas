@@ -1,6 +1,6 @@
-# StarAtlas计划
+# Star Atlas计划
 
-![star-altas](assets/star-altas.jpg)
+![star-altas](assets/star-altas-1560082524953.jpg)
 
 ### 群星录第二季
 
