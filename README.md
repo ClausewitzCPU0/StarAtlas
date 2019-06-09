@@ -24,7 +24,7 @@
 
 ##### 其他备选选手(未提及的可以私信补充)：
 
-Soo InnoVation Serral  Maru PartinG MVP NesTea Jaedong Stork Flash MKP Boxer ByuN DongRaeGu Scarlett Soulkey  Dark Reality herO Stats Zest TY Hero Life Classic  Solar MajOr **F91** TIME Toodming Jim Macsed Xigua iA XY Top **Courage** Cloudy Has Sen San Bomber MMA Polt MC Rain Dear Trap effort stephano Naniwa SC FruitDealer Dream LoSira Squirtle Hyun Creator Curious  Keen  Gumiho Stardust Action roro Shine Fantasy Hyvaa Hydra Skyhigh Jjakji SuperNoVa HuK ToD ShowTime  FireCake TLO ByuL 	Lilbow ForGG Bbyong Leenock 	MyuNgSiK Snute MaNa aLive Cure TRUE  Impact 
+Soo InnoVation Serral  Maru PartinG MVP NesTea Jaedong Stork Flash MKP Boxer ByuN DongRaeGu Scarlett Soulkey  Dark Reality herO Stats Zest TY Hero Life Classic  Solar MajOr **F91** TIME Toodming Jim Macsed Xigua iA XY Top **Courage** Cloudy Has Sen San Bomber MMA Polt MC Rain Dear Trap effort stephano Naniwa SC FruitDealer Dream LoSira Squirtle Hyun Creator Curious  Keen  Gumiho Stardust Action roro Shine Fantasy Hyvaa Hydra Skyhigh Jjakji SuperNoVa HuK ToD ShowTime  FireCake TLO ByuL 	Lilbow ForGG Bbyong Leenock 	MyuNgSiK Snute MaNa aLive Cure TRUE  Impact Sakura RagnaroK Firefly 
 
 
 

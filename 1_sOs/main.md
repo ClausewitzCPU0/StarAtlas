@@ -1,5 +1,7 @@
 # sOs : Soul of Sky
 
+![sos](assets/sos.jpg)
+
 1. 小herO 10W刀的连续两场野BG
 
    幻象棱镜戏耍Taeja
@@ -70,6 +72,8 @@ https://www.bilibili.com/video/av33130479?from=search&seid=16883833405691858184
 
 https://liquipedia.net/starcraft2/SOs
 
+http://bbs.niuyou5.com/thread-2359683-1-1.html
+
 https://liquipedia.net/starcraft2/2015_MSI_Masters_Gaming_Arena
 
 https://liquipedia.net/starcraft2/2015_WCS_Global_Finals
@@ -84,3 +88,12 @@ https://www.zhihu.com/question/325446267
 
 记者：你觉得你是你们队的王牌吗？  Trap：不，是我们的总教练，sOs。
 
+
+
+选手logo：
+
+https://www.reddit.com/r/starcraft/comments/3d64db/ssl_season_3_player_logos_profile_pics_explained/
+
+https://tl.net/forum/starcraft-2/490143-ssl-qualifier-emblems
+
+ https://www.reddit.com/r/starcraft/comments/5iiauk/ssl_player_logos_explained_2016_seasons_1_2/  
