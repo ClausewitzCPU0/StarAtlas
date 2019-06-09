@@ -1,5 +1,7 @@
 # StarAtlas计划
 
+![star-altas](assets/star-altas.jpg)
+
 ### 群星录第二季
 
 目标：更详尽的资料、更深度的分析、更精美的特效
