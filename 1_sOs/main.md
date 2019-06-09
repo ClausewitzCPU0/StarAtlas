@@ -1,6 +1,6 @@
 # sOs : Soul of Sky
 
-![sos](assets/sos.jpg)
+![sos2](assets/sos2.jpg)
 
 1. 小herO 10W刀的连续两场野BG
 
@@ -48,7 +48,11 @@
 
 18. who lets the dogs out
 
-19. 
+19. 2015年韩国电竞大奖
+
+    http://s.163.com/15/1125/17/B99KQJ7800314Q8M.html#p=B99K4JVL55LG0031
+
+20. 
 
 
 
