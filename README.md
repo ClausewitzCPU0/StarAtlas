@@ -12,7 +12,7 @@
 
 ## 一、分集进度
 
-1. sOs：Soul of Sky
+1. sOs：Soul of Sky (试水作)
 
    剧本：20%
 
@@ -34,19 +34,19 @@
 
 ##### 其他备选选手(未提及的可以私信补充)：
 
-Soo InnoVation Serral  Maru PartinG MVP NesTea Jaedong Stork Flash MKP Boxer ByuN DongRaeGu Scarlett Soulkey  Dark Reality herO Stats Zest TY Hero Life Classic  Solar MajOr **F91** TIME Toodming Jim Macsed Xigua iA XY Top **Courage** Cloudy Has Sen San Bomber MMA Polt MC Rain Dear Trap effort stephano Naniwa SC FruitDealer Dream LoSira Squirtle Hyun Creator Curious  Keen  Gumiho Stardust Action roro Shine Fantasy Hyvaa Hydra Skyhigh Jjakji SuperNoVa HuK ToD ShowTime  FireCake TLO ByuL 	Lilbow ForGG Bbyong Leenock 	MyuNgSiK Snute MaNa aLive Cure TRUE  Impact Sakura RagnaroK Firefly 
+Soo Serral  Maru PartinG MVP NesTea Jaedong Stork Flash MKP Boxer ByuN DongRaeGu Scarlett Soulkey  Dark Reality herO Stats Zest TY Hero Life Classic  Solar MajOr **F91** TIME Toodming Jim Macsed Xigua iA XY Top **Courage** Cloudy Has Sen San Bomber MMA Polt MC Rain Dear Trap effort stephano Naniwa SC FruitDealer Dream LoSira Squirtle Hyun Creator Curious  Keen  Gumiho Stardust Action roro Shine Fantasy Hyvaa Hydra Skyhigh Jjakji SuperNoVa HuK ToD ShowTime  FireCake TLO ByuL 	Lilbow ForGG Bbyong Leenock 	MyuNgSiK Snute MaNa aLive Cure TRUE  Impact Sakura RagnaroK Firefly 
 
 
 
 ## 二、新一季节目的说明
 
-1. 各位可以到我的网站上上传自己喜欢选手的高光时刻。
+1. 各位可以到我的网站上上传自己喜欢选手的高光时刻。(开发中，预计6月底上线)
 
    上传的越多，对应选手的节目就会越早更新。
 
 2. 后续更新问题。对我个人来说，开坑看兴趣，填坑看观众反映。如果反响比较好的话会一直做下去。当然，可能会夹杂一些例如翻译类、P社游戏的视频，不喜欢的可以跳过。
 
-   **目前有成立制作组的考虑**。一个人做确实比较自由，想鸽多久鸽多久(2333),但是对于观众其实是不太负责的。我深入了解的选手其实很少，所以需要一些剧本上的帮助。
+   **目前有成立制作组的考虑**。一个人做确实比较自由，想鸽多久鸽多久(2333),但是对于观众其实是不太负责的。我深入了解的选手其实很少，所以需要一些剧本上的帮助。另外我没有专用麦，收音大概率用笔记本自带麦克风，先尝试录一段，要是效果不好的话估计还要找人帮忙。
 
 3. 新一季的第一集还是狗哥，会对原来内容大幅增补，相当于是全新的一集，同时也是试水作。从第二集开始，选手不再重复。
 
