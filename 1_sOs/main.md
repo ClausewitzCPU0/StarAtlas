@@ -70,9 +70,7 @@ sOs参加了当年WCS韩国区预选赛，然而成绩并不理想。
 
 sOs即将迈出他王者之路的第一步。
 
-
-
-![img](assets/images%2F2013%2F11%2F6%2F549fa9f5f113300a07c90dd3d80fa74e)
+![img](assets/2013WCS.jpg)
 
 三个3:1淘汰HerO、Polt、Bomber，强势杀入决赛。
 
