@@ -14,9 +14,9 @@
 
 1. sOs：Soul of Sky (试水作)
 
-   剧本：20%
+   剧本：50%   链接：<https://github.com/ClausewitzCPU0/StarAtlas/blob/master/1_sOs/main.md>
 
-   素材收集：40%
+   素材收集：60%
 
    特效制作：0%
 
