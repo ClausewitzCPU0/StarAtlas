@@ -118,9 +118,51 @@ sOs开启抢钱模式，连续两盘野2BG，准确把握herO心理，连下两�
 
 2014年12月Hot6ix Cup，8强3:1击败老对手卫星，四强3:0轻取“四差人族”sKyHigh。决赛对手是3:0击败PartinG，3:2淘汰Zest的“山包”MarineKing，隐隐有王者归来之势。然而决赛让人大跌眼镜，sOs智商碾压，4:1完胜枪兵王夺冠。
 
+### 2015
+
+2015狗哥开局不顺，SSL输给Curious折戟预选赛。3天后，再次输给Curious，未能从GSL出线。这意味着这赛季SSL和GSL的WCS积分都和狗哥无缘，通往年终总决赛的道路变得异常艰难。
+
+2015赛季的SPL，狗哥用了个奇妙的战术击败TY(https://liquipedia.net/starcraft2/2015_Proleague/Round_1/Round_Robin#Round_1W1_-_Match_3)，但在之后的比赛中输给innovation和Leenock这样的一流选手。（略去部分内容）季后赛第一轮，StarTale-闪电狼联队没有按时到场，所以直接被判负，JinAir晋级下一轮。
+
+3月4日，sOs成功晋级GSL A级。
+
+3月26日，重返SSL。
+
+4月3日，重返GSL S级。
+
+4月10日，输给Dear再次折戟SSL。
+
+5月20日，GSL S级32强再次输给Curious，好在赢下后两场成功晋级16强。16强B组是死亡之组，组内有“神族之盾”Rain, “人族狗哥”Bbyong和 INnoVation。最终双神携手晋级。8强3:0轻取蒙斯克，但是在4强4:2负于ByuL。这个4强成绩为狗哥提供了至关重要的900点WCS积分。
+
+6月25日，参加SSL 第三赛季预选赛，成功晋级正赛。
+
+6月29日 在SPL完成个人对CJ的All-Kill，对手是herO、ByuL、Bbyong、RagnaroK。
+
+7月1日，参加2015MSI预选赛，再次输给苦手Zest，无缘正赛。**但是伏笔已经埋下。**
+
+7月3日，SSL3:2艰难战胜Solar，但自己也陷入同时打多个赛事的尴尬境地。
+
+7月30日，未能在herO、innovation、Life的死亡之组中出线，止步16强。
+
+与此同时，由于上赛季晋级8强，所以sOs以种子身份参加GSL第三赛季，从Bbyong、Life、Stork的小组中头名出线。
+
+8月30-31日，一次意外改变了一切。狗哥本来是没资格参加MSI的(预选赛0:2输给Zest)，但是因为当年的神族内奸Zest要去拯救战队，所以**空缺的名额让狗哥顶替了**。狗哥开启抢分模式，8强2:0淘汰viOLet，半决赛连狗两盘2:0击败老对手innovation，随后3:0血洗Solar获得冠军，拿到极其宝贵的750WCS积分。总积分从17名跃升至13名(前16名晋级年终总决赛)。
+
+9月4日，GSL倒在16强，但是无伤大雅。拿走最后的300WCS积分，年终总决赛的入口已经畅通无阻。
+
+9月21日，SPL季后赛复仇Zest，帮助战队4:1拿下第一场。紧接着，9月22日，在教主连下三局的情况下，以一敌四反AK KT战队，成就SPL历史上唯一一次反AK记录。（我不仅要白拿你的名额，我还要血洗你的战队！）同时也获得此轮MVP。
+
+不到一周时间，sOs又参加了2015年DreamHack。8强3:1解决老对手Curious，半决赛2:3负于Solar。四强的375分WCS积分再次巩固了参加年终总决赛的席位。
+
+9月29日，季后赛第二轮。复仇ByuL，第二场更是先灭herO，最后再次干掉ByuL一锤定音，将战队送入决赛。在决赛中sOs再次负于innovation，绿翼也不敌强大的SKT，再次屈居亚军。
+
+最终所有WCS积分赛打完，sOs以3525分居于14名，晋级WCS年终总决赛。
+
+
+
 --------------------------------------------------更新至此---------------------------------------------------
 
-### 2015
+The Round of 16 of the [2015 WCS Global Finals](https://liquipedia.net/starcraft2/2015_WCS_Global_Finals) was played on November 1 at the ESL Studio in Burbank, California.
 
 2015年传奇WCS征程 两次blizzcon冠军，史无前例
 
@@ -128,15 +170,19 @@ sOs开启抢钱模式，连续两盘野2BG，准确把握herO心理，连下两�
 
 传奇从2015年的MSI开始。当时狗哥WCS积分只有17名(前16名有资格参加年终总决赛)，剩下的大赛只有两场(MSI和Dreamhack)，因此形势并不乐观。
 
-狗哥本来是没资格参加MSI的，但是因为当年的神族内奸Zest要去拯救战队，所以**空缺的名额让狗哥顶替了**。狗哥在半决赛连狗两盘击败老对手innovation，随后获得冠军，拿到宝贵的750积分，一脚踹开了10W刀奖金的大门。
+
 
 16进8的比赛中，与Parting的操作较量不落下风。
+
+
+
+不同于16年ByuN和Dark在WCS总决赛上精细操作的极限交锋，15年的这场WCS更像是一场宏观策略的终极较量。
 
 棋逢对手VS Life
 
 
 
-在2013年11月-2015年底将近两年的时间里，sOs一共获得了约41.3万美元的奖金，其中4届奖金超过10万美元的大型赛事被sOs一人包揽，3座冠军奖杯(WCS2013、IEM8、WCS2015)，成为虫群之心时期的“吸金王”。sOs也因为这三个冠军而获得了“$$$”的外号，甚至他的战队赞助商JinAir把他的头像印在了JinAir航空的飞机上来为他庆祝。
+在2013年11月-2015年底将近两年的时间里，sOs一共获得了约41.3万美元的奖金，其中3届奖金超过10万美元的大型赛事被sOs一人包揽(WCS2013、IEM8、WCS2015)，成为虫群之心时期的“吸金王”。sOs也因为这三个冠军而获得了“$$$”的外号，甚至他的战队赞助商JinAir把他的头像印在了JinAir航空的飞机上来为他庆祝。
 
 ![img](assets/20170829114731942004.png)
 
@@ -146,11 +192,15 @@ sOs开启抢钱模式，连续两盘野2BG，准确把握herO心理，连下两�
 
 
 
+### 总结
+
+狗哥之所以能成为星际2的一面旗帜，一部分是因为他优秀的大赛成绩，但更重要的是他向我们展示了星际2的无限可能性。战术型选手可以走上最高领奖台，心理战可以成为比赛的决定性因素，智商可以胜于操作。与Maru和PartinG这种通过彻底锤炼操作来战斗的选手不同，狗哥以其诡异多变的战术和策略走出了一条截然不同的道路。
+
+或许sOs是否是星际2第一神族还有争议。但可以肯定的是，他绝对是星际2最特别的选手，也是星际2最强的战术大师。纵观狗哥职业生涯，尽管他不能给出长时间的稳定的优秀表现，但任何一个时间点，他都可能爆发出超一流的能量。
 
 
 
-
-
+### 尾声
 
 狗哥成为了全泗川的骄傲。
 
@@ -158,65 +208,63 @@ sOs开启抢钱模式，连续两盘野2BG，准确把握herO心理，连下两�
 
 
 
-## 高光时刻
+## 趣闻
 
-1. 小herO 10W刀的连续两场野BG
+1. 连续三把野隐刀
 
-   幻象棱镜戏耍Taeja
+2. 六字真言 https://www.bilibili.com/video/av1548392/?p=2 38:45
 
-2. 连续三把野隐刀
+3. 奖金越高，状态越好
 
-3. 六字真言 https://www.bilibili.com/video/av1548392/?p=2 38:45
+4. 苦手innovation，被地雷炸惨
 
-4. 奖金越高，状态越好
+5. WCS 2018 3:0 Maru
 
-5. 苦手innovation，被地雷炸惨
+6. 其实狗哥实力比较稳定 neotv帖子
 
-6. WCS 2018 3:0 Maru
+7. $O$
 
-7. 其实狗哥实力比较稳定 neotv帖子
+8. 跳P看狗哥
 
-8. $O$
+9. 狗哥出处
 
-9. 跳P看狗哥
+10. 反AK教主
 
-10. 狗哥出处
+11. 狗哥提速狗开
 
-11. 反AK教主
+12. 二刀流 GSL决赛
 
-12. 狗哥提速狗开
+13. 最特别的星际2选手
 
-13. 二刀流 GSL决赛
+14. 2VC升级闪烁和脚速
 
-14. 最特别的星际2选手
+15. who lets the dogs out
 
-15. 2VC升级闪烁和脚速
-
-16. who lets the dogs out
-
-17. 2015年韩国电竞大奖
+16. 2015年韩国电竞大奖
 
     http://s.163.com/15/1125/17/B99KQJ7800314Q8M.html#p=B99K4JVL55LG0031
 
-18. 小hero的主人 
+17. 小hero的主人 
 
     https://www.bilibili.com/video/av44431567  7:54
 
     https://www.bilibili.com/video/av52486257?from=search&seid=5001295910168760499 2:50 想用键盘砸sos的头
 
-19. 苦手Zest
+18. 苦手Zest
 
-20. WCS赛场 从Parting开始的冠军旗
+19. WCS赛场 从Parting开始的冠军旗
 
-21. 狗哥 免疫一切大招的男人
+20. 狗哥 免疫一切大招的男人
 
-22. 狗哥MGA决赛幻象追猎吓退solar
+21. 狗哥MGA决赛幻象追猎吓退solar
 
-23. https://www.bilibili.com/video/av19930662/#page=2  第二局从头到尾爆智力
+22. https://www.bilibili.com/video/av19930662/#page=2  第二局从头到尾爆智力
 
-24. KeSPA的关系
+23. KeSPA的关系
 
-25. sos流 PVT运营完善
+24. sos流 PVT运营完善
+
+25. 好星际导师
 
 
 
@@ -235,6 +283,10 @@ https://www.bilibili.com/video/av33130479?from=search&seid=16883833405691858184
 拿破仑侵俄战争
 
 
+
+### BGM
+
+Global visions
 
 ## 参考资料：
 
@@ -256,6 +308,10 @@ https://www.bilibili.com/video/av19079914
 
 https://www.bilibili.com/read/cv2781721
 
+http://bbs.niuyou5.com/forum.php?mod=viewthread&tid=2335465
+
+http://bbs.niuyou5.com/forum.php?mod=viewthread&tid=2323430
+
 
 
 https://www.zhihu.com/question/325446267
@@ -271,3 +327,6 @@ https://www.reddit.com/r/starcraft/comments/3d64db/ssl_season_3_player_logos_pro
 https://tl.net/forum/starcraft-2/490143-ssl-qualifier-emblems
 
  https://www.reddit.com/r/starcraft/comments/5iiauk/ssl_player_logos_explained_2016_seasons_1_2/  
+
+
+
