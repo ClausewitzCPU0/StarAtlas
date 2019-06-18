@@ -148,11 +148,11 @@ sOs即将迈出他王者之路的第一步。
 
 8月30-31日，一次意外改变了一切。狗哥本来是没资格参加MSI的(预选赛0:2输给Zest)，但是因为当年的神族内奸Zest要去拯救战队，所以**空缺的名额让狗哥顶替了**。狗哥开启无敌抢分模式，8强2:0淘汰viOLet，半决赛连狗两盘2:0击败老对手innovation，随后3:0血洗Solar获得冠军，拿到极其宝贵的750WCS积分。总积分从17名跃升至13名(前16名晋级年终总决赛)。
 
-9月4日，GSL倒在16强，但是无伤大雅。拿走300WCS积分，年终总决赛的入口已经畅通无阻。
+9月4日，GSL倒在16强，发挥并不理想。好在拿到300WCS积分，年终总决赛的入口已经越来越近。
 
-9月21日，SPL季后赛复仇Zest，帮助战队4:1拿下第一场。紧接着，9月22日，在教主连下三局的情况下，以一敌四反AK KT战队，成就SPL历史上唯一一次反AK记录。（我不仅要白拿你的名额，我还要血洗你的战队！）同时也获得此轮MVP。
+9月21日，SPL季后赛复仇Zest，帮助战队4:1拿下第一场。SPL季后赛Jinair 1:0 KT，如果这场输了，就是1:1，意味着还要打第三盘，但会因为赛程冲突错失接下来的DreamHack。留给狗哥的时间不多了。DreamHack是WCS前最后一个能获得积分的比赛，如果不在DreamHack上拿分，就不能100%拿到WCS总决赛名额。紧接着，9月22日，在教主连下三局的情况下，以一敌四反AK KT战队，成就SPL历史上唯一一次反AK记录。（我不仅要白拿你Zest的名额，我还要血洗你的战队！）同时也获得此轮MVP。
 
-不到一周时间，sOs又参加了2015年DreamHack。8强3:1解决老对手Curious，半决赛2:3负于Solar。最后的375分WCS积分再次巩固了参加年终总决赛的席位。
+随后立即奔赴机场，赶上飞向斯德哥尔摩的航班，及时参加了2015年DreamHack。8强3:1解决老对手Curious，半决赛2:3负于Solar。最后的375分WCS积分终于确保了参加年终总决赛的席位。
 
 9月29日，季后赛第二轮。复仇ByuL，第二场更是先灭herO，最后再次干掉ByuL一锤定音，将战队送入决赛。在决赛中sOs再次负于innovation，绿翼也不敌强大的SKT，再次屈居亚军。
 
@@ -232,6 +232,8 @@ sOs，历史唯一WCS两冠王，亲手为虫群之心版本画上恢弘的句�
 
 韩国星际江河日下。1月29日Life被韩国警方逮捕。Life假赛门造成韩国星际地震，他自己也直接走在冷风中，获得“牢本”的称号。一代虫王因为赌博落得终生禁赛，让人唏嘘不已。估计暴雪高层也在庆幸是狗哥拿了双冠王而不是Life。如果星际2世界第一人是假赛赌狗，那么星际2势必将成为暴雪最大的污点。从某种角度说，sOs甚至拯救了星际2的声誉。
 
+2月2日，IEM10台北站4:2战胜ByuN。
+
 2016年SPL，绿翼以银河战舰的姿态参战。以超过第二名80分的总分直接晋级季后赛决赛。
 
 9月3日的决赛中，4:0血洗KT，狗哥压轴登场，帮助队伍拿到梦寐以求，也是历史上最后一个SPL总冠军。
@@ -246,6 +248,16 @@ sOs，历史唯一WCS两冠王，亲手为虫群之心版本画上恢弘的句�
 
 2017年第三赛季，狗哥再次杀入决赛。决赛中将要面对老对手INnoVation。这将是星际2最高智商和最强基本功之间的对决。3:4憾负INnoVation后，狗哥再次痛失保送年终总决赛的机会，最终以仅仅150分之差，未能出现在WCS总决赛的舞台上。
 
+With this victory under his belt, INnoVation faced off against a resurgent [sOs](https://liquipedia.net/starcraft2/SOs) in the grand finals. This was a highly-anticipated match up between two players of polar opposite orientations: INnoVation, the stoic traditionalist of incredible micro and macro, against sOs, with a thousand strategies up his sleeve and the presence of mind to execute them when it really mattered. This series ended up playing out like many had anticipated: sOs used his unorthodox tactics and unpredictable unit compositions to pull INnoVation apart, while INnoVation attempted to defeat sOs using his superior mechanics.
+
+Tied at 1-1, game 3 was notable for INnoVation reversing the trend and defeating sOs using a proxy Cyclone rush. Game 5 on Odyssey saw one of the most one-sided games in the series, with sOs completely mind-gaming the Terran contender. sOs started out with a proxy Stargate into Oracle placed in a very far location from INnoVation's main base, which was not scouted by INnoVation until the Oracle flew into his base. While INnoVation did not take major damage, sOs had already constructed a Nexus at the gold expansion. INnoVation at this point became fearful of a Protoss attack that did not exist, as he constructed multiple Bunkers and Missile Turrets on a 2-base economy. sOs took advantage of the confusion and went up to 4 bases including the gold expansion. With 4 bases to 2 and INnoVation completely behind on economy, sOs decided to cement his lead further by taking a hidden base on INnoVation's side of the map which was not discovered for the entire game. INnoVation ended up spending the last 3 minutes of the game on 0 workers (both players had circa 100 supply armies) after losing all of his Orbital Commands, and was forced to concede after there was no way for his units to attack Dark Templar.
+
+With sOs on match-point, the pressure on INnoVation was palpable. Game 6 on Ascension to Aiur saw sOs use another pocket strategy: Zealot Charge / Blink DT rush. This was a strategy designed to catch the Terran army off-guard, rather than attempting to ruin the Terran economy like standard DT play. sOs intended for his DTs to blink in and surround INnoVation's Marine force from behind, while Zealots charged in from the front. Unfortunately, the Dark Shrine was placed in sOs's main base which was scouted rather quickly by INnoVation. INnoVation's subsequent defense was effortless, easily repelling sOs's three attempts to destroy INnoVation's army. By the end of the third attempt, sOs was at half of INnoVation's supply. Down on army and on economy, sOs conceded the game.
+
+Game 7 was to be played on one of the most macro-heavy maps ever featured on GSL, Acolyte. At the beginning of the series, Artosis specifically called out this map, with its size and many proxy locations, to be very advantageous for sOs to play on. Unfortunately sOs opted with a greedy Stargate opening while teching to Colossus on three bases (with very few army units) while INnoVation opened with a Siege Tank, Marine, Medivac, and Bunker push. INnoVation, sensing an obvious opportunity to take this series thanks to his massive build order advantage, pressed forward and dealt sOs a major blow by destroying sOs's exposed third Nexus. sOs, however, was able to stabilize in his main by building up his Colossi count. Just as the armies looked to be at a stalemate, with nobody willing to make an aggressive move, the trickster Protoss decided to take a hidden Nexus on INnoVation's side of the map. This went unscouted by INnoVation for some time, but INnoVation must have remembered his humiliation on game 5 and had the discipline to send out a single Marine to check the spots where sOs might make hidden expansions. To INnoVation's great surprise (and elation), the moment he scouted the base was when sOs used the Mothership Core to recall about a dozen Probes to that expansion. INnoVation wasted no time in sending a small force of Marines and Marauders to wipe out the outpost. The Protoss two-time world champion, seeing his desperate situation in the final game of the series, in typical sOs fashion, then went for a play that nobody expected -- he recalled his Mothership Core and Probes back to his main, but returned, seconds later, with his entire army and about two dozen workers, into the proxy Nexus leaving nothing to defend his main. INnoVation's hapless infantry squad, tasked with wiping out sOs's outpost, is decimated.
+
+INnoVation immediately sent his forces closest to sOs's undefended main to destroy it. He also gathered his Viking/Liberator air force, with whatever SCVs and infantry he could muster, for a showdown against sOs's final push. Fortunately for INnoVation, the Viking air force punched through sOs's remaining Phoenixes and destroyed the Colossi from range. A small Marauder flank from behind sealed sOs's fate. With no functional army and his base in tatters, sOs handed INnoVation's third GSL trophy.
+
 12月26日，sOs在GSL 2018第一赛季预选赛击败噶姐，确保S级名额。
 
 ### 2018
@@ -255,6 +267,8 @@ sOs，历史唯一WCS两冠王，亲手为虫群之心版本画上恢弘的句�
 2018年2月7日，IEM12 平昌冬奥会上一路3:0横扫晋级，但在决赛1:4大比分输给“刀锋女王”Scarlett。
 
 2018年2月22日，GSL 16强，在选人仪式中被分到D组。组内4个神族，狗哥展现强大的PVP实力，头名出线。比赛中展示出各种天马行空的战术让他的粉丝们给他起了无数的昵称(~~狗哥~~)。8强2:3憾负队友Maru，后者最终获得GSL冠军。
+
+9月，2018 GSL 超级杯。3:1暴打“杰伦”Keen，3:1完胜Maru，半决赛让二追三Solar。决赛对阵Classic惨遭让三追四。
 
 2018WCS年终总决赛8强，在不被所有人看好的情况下，每盘都用极其针对的战术3:0零封Maru。但在4强被“拔本”Stats零封出局。
 
@@ -284,7 +298,7 @@ sOs，历史唯一WCS两冠王，亲手为虫群之心版本画上恢弘的句�
 
 ## 趣闻
 
-1. 连续三把野隐刀
+1. 连续三把隐刀放出花 https://www.bilibili.com/video/av1263204/?p=2
 
 2. 六字真言 https://www.bilibili.com/video/av1548392/?p=2 38:45
 
@@ -326,7 +340,7 @@ sOs，历史唯一WCS两冠王，亲手为虫群之心版本画上恢弘的句�
 
 18. 苦手Zest
 
-19. WCS赛场 从Parting开始的冠军旗
+19. WCS赛场 从Parting开始的冠军旗 <https://www.youtube.com/watch?v=Pqnhz1MDu1k&list=PLHZ-lw26q81Wx57b3a-dlOPING5ht_c3V&index=1>
 
 20. 狗哥 免疫一切大招的男人
 
@@ -342,7 +356,7 @@ sOs，历史唯一WCS两冠王，亲手为虫群之心版本画上恢弘的句�
 
 26. 最喜欢的外国选手是Naniwa
 
-27. 
+27. who let the dogs out.mp3 
 
 
 
@@ -360,7 +374,13 @@ https://www.bilibili.com/video/av33130479?from=search&seid=16883833405691858184
 
 拿破仑侵俄战争
 
+央视华尔街
 
+GSL宣传片
+
+WCS宣传片
+
+IEM宣传片
 
 ### BGM
 
@@ -379,6 +399,8 @@ http://bbs.niuyou5.com/thread-2359683-1-1.html
 https://liquipedia.net/starcraft2/2015_MSI_Masters_Gaming_Arena
 
 https://liquipedia.net/starcraft2/2015_WCS_Global_Finals
+
+https://liquipedia.net/starcraft2/INnoVation
 
 http://bbs.niuyou5.com/forum.php?mod=viewthread&tid=2245505&extra=page%3D1%26filter%3Ddigest%26digest%3D1
 
