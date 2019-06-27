@@ -358,6 +358,8 @@ INnoVation immediately sent his forces closest to sOs's undefended main to destr
 
 27. who let the dogs out.mp3 
 
+28. soul of sky 出处 https://www.bilibili.com/video/av9956176?p=3&share_medium=android&share_source=qq&bbid=Nwc0AWJTZVA2UmEDfwN_infoc&ts=1561544920937
+
 
 
 ## 特效参考
