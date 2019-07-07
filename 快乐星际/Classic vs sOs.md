@@ -15,27 +15,41 @@ https://www.youtube.com/watch?v=5tu3EhPIZcU&feature=youtu.be
 聊天流文本：
 
 0:30
+
 sos:too sad. im going first(out of the group)
-classic:lol
-...wait. we are the same group (gsl)
+
+classic:lol ...wait. we are the same group (gsl)
+
 sos:i just realized that also
+
 classic:lol
+
 this is going to be interesting 
+
 hehe
+
 sos:im the worst there
+
 classic:then we are both going(out of the group) it seems
+
 sos:aww but at least my situation is better than yours older bro
 
 2:49 
 
 classic:no search incoming? wtf are you up to
+
 sos:im to lazy for it
+
 classic:i guess your up to some pervy stuff again. pervert.
+
 sos:of cource of cource~
 
 3:18
+
 sos:you think you are one of those macro skilled player. ^^ (chat rush since he sent the adept shadows right after clicking enter) 
+
 classic:(casually blocks shadow) at least i am compared to you :)
+
 sos: :D
 
 7:12 
@@ -45,11 +59,15 @@ sos:you peeped on my stream didnt you
 (korean community meme that comes from parting's harass on a  top amateur protoss long story)
 
 15:01 
+
 classic:your play is deeply disgusting me. omfg.
+
 sos:same fhur mea. ^^
 
 18:46
+
 sos:lolol
+
 classic:ha.....
 
 
@@ -57,15 +75,21 @@ sos:omg no money..shit
 
 21:29 
 classic:lolol 
+
 sos: (crying face)
 
 sos:...i waited for this moment!!!
+
 classic:?
+
 sos:I HAVE MONEY ON THE BANK
+
 sos:yep. thats it
+
 classic:nooooo(darth vader)
 
 sos:see you gsl 16
+
 classic:no gg for you 
 
 —— burral ence在youtube评论区的翻译
