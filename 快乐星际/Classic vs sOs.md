@@ -1,5 +1,7 @@
 # 世界级智商杯 经典vs狗哥
 
+![QQ图片20190707204144](assets/QQ图片20190707204144.jpg)
+
 一场TL上的3月经典对局。节目效果爆炸。
 
 鸭本搬运：
@@ -96,6 +98,8 @@ classic:no gg for you
 
 #### 谐星翻译：
 
+由于是二手翻译（韩语->英语->中文），意思可能存在偏差，不负责任。
+
 ##### 0:30
 
 sos:有点伤，我可能要第一个出局了（指2019GSL第一赛季16强）
@@ -126,12 +130,7 @@ sos:那肯定啊
 
 sos:你是不是觉得自己大局观很强嘛（说完立马飘了使徒）
 
-you think you are one of those macro skilled player. ^^ 
-(chat rush since he sent the adept shadows right after clicking enter) 
-
 classic:（随手把口堵了）至少比你强点
-
-(casually blocks shadow) at least i am compared to you :)
 
 sos: :D
 
@@ -167,7 +166,7 @@ sos:就是现在！！！
 
 classic:蛤？
 
-sos:其实我还有存款！
+sos:其实哥还有钱！
 
 sos:A死你！我好爽啊！
 
