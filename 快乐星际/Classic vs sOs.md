@@ -175,4 +175,4 @@ classic:我在打什么啊
 
 sos:GSL16强见（隐刀开始魔鬼的扭动）
 
-classic:素质太差了，不给你打gg （不堪受辱，不朽自A气矿退出）
+classic:素质太差了，gg你大爷(no gg for you) （不堪受辱，不朽自A气矿退出）
