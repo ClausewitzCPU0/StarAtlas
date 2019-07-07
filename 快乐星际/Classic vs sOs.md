@@ -122,7 +122,7 @@ classic:不来侦查？你搞毛啊？
 
 sos:懒得侦查
 
-classic:我猜你个狗b又要放战术
+classic:我猜你个狗b又要提速狗开
 
 sos:那肯定啊
 
