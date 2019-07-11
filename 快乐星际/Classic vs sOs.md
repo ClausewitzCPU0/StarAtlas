@@ -14,6 +14,14 @@ https://www.youtube.com/watch?v=5tu3EhPIZcU&feature=youtu.be
 
 
 
+### BGM:
+
+Calm etude（平静练习曲） -  Великая Война
+
+西班牙斗牛士进行曲
+
+
+
 聊天流文本：
 
 0:30
