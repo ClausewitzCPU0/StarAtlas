@@ -326,39 +326,37 @@ INnoVation immediately sent his forces closest to sOs's undefended main to destr
 
 14. 2VC升级闪烁和脚速
 
-15. who lets the dogs out
-
-16. 2015年韩国电竞大奖
+15. 2015年韩国电竞大奖
 
     http://s.163.com/15/1125/17/B99KQJ7800314Q8M.html#p=B99K4JVL55LG0031
 
-17. 小hero的主人 
+16. 小hero的主人 
 
     https://www.bilibili.com/video/av44431567  7:54
 
     https://www.bilibili.com/video/av52486257?from=search&seid=5001295910168760499 2:50 想用键盘砸sos的头
 
-18. 苦手Zest
+17. 苦手Zest
 
-19. WCS赛场 从Parting开始的冠军旗 <https://www.youtube.com/watch?v=Pqnhz1MDu1k&list=PLHZ-lw26q81Wx57b3a-dlOPING5ht_c3V&index=1>
+18. WCS赛场 从Parting开始的冠军旗 <https://www.youtube.com/watch?v=Pqnhz1MDu1k&list=PLHZ-lw26q81Wx57b3a-dlOPING5ht_c3V&index=1>
 
-20. 狗哥 免疫一切大招的男人
+19. 狗哥 免疫一切大招的男人
 
-21. 狗哥MGA决赛幻象追猎吓退solar
+20. 狗哥MGA决赛幻象追猎吓退solar
 
-22. https://www.bilibili.com/video/av19930662/#page=2  第二局从头到尾爆智力
+21. https://www.bilibili.com/video/av19930662/?p=2  第二局从头到尾爆智力
 
-23. KeSPA的关系
+22. KeSPA的关系
 
-24. sos流 PVT运营完善
+23. sos流 PVT运营完善
 
-25. 好星际导师
+24. 好星际导师
 
-26. 最喜欢的外国选手是Naniwa
+25. 最喜欢的外国选手是Naniwa
 
-27. who let the dogs out.mp3 
+26. who let the dogs out.mp3 
 
-28. soul of sky 出处 https://www.bilibili.com/video/av9956176?p=3&share_medium=android&share_source=qq&bbid=Nwc0AWJTZVA2UmEDfwN_infoc&ts=1561544920937
+27. soul of sky 出处 https://www.bilibili.com/video/av9956176?p=3&share_medium=android&share_source=qq&bbid=Nwc0AWJTZVA2UmEDfwN_infoc&ts=1561544920937
 
 
 
